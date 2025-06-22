@@ -1,4 +1,4 @@
 # eagleyesecurities
 Company Site Data
 #About Us
-Eagle Eye Securities's mission is to create a  global integrated network of technologies, financial systems, and resources that promote generosity, eliminate greed and connect the body of Christ in one accord.
+Eagle Eye Securities' mission is to create safer environments with ultra-secure drones. Our mission is to protect and deter danger from occurring and prevent bad actors from committing evil crimes by bringing justice, integrity, innovation, continuity, and customer-centric qualities.
